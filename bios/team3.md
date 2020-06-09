@@ -1,1 +1,1 @@
-Jasmin Washington is a recent graduate of the University of Virginia. She is a good egg, or so they say. She is doing her best to understand GitHub but this stuff is hard dude idk. We will see how this goes!
+Jasmin Washington is a recent graduate of the University of Virginia. She is a good egg, or so they say. She is doing her best to understand GitHub but this stuff is hard dude idk. We will see how this goes! Adding more to this, we'll see how it goes.
